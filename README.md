@@ -1,4 +1,3 @@
-# bir-kadin-camille-claudel-pdf-anne-delbee
 # Bir Kadın: Camille Claudel - Anne Delbée (PDF İnceleme ve Özet)
 
 **Anne Delbée** tarafından kaleme alınan ve heykel sanatının dahi ismi **Camille Claudel**'in fırtınalı yaşamını anlatan "Bir Kadın" eseri hakkında en kapsamlı rehber.
